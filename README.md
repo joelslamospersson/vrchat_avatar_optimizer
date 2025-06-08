@@ -1,0 +1,1 @@
+# vrchat_avatar_optimizer
